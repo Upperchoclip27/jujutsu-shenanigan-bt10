@@ -1,4 +1,4 @@
-
+new jujutsu shenanigans Scripts offers the most advanced jujutsu shenanigans Script, with auto-farm and aimbot. Perfect for dominating any match.
 
 
 
